@@ -1,0 +1,2 @@
+# contect
+shahriyorning figma ishi
